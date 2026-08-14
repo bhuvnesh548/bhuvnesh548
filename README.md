@@ -1,5 +1,5 @@
 # 💫 About Me:
-BHUVNESH PANDEY<br>Just learning about how things work!<br>Pune, Maharashtra<br>+91-94114702428, +91-8630263353 <br>bhuvneshpandey23@gmail.com <br>linkedin.com/in/[your-handle]<br>github.com/[your-handle]  |  <br>[your-portfolio.com]<br>QUALIFICATIONS<br>•Bachelor of Computer Application	<br>  1st division, 2026, MJP Rohilkhand University, Bareilly, Uttar Pradesh <br>•Intermediate <br>  2nd division, 2023, UP Board<br>•Highschool <br>  1st division, 2021, UP Board<br>Certifications<br>•	Advance diploma in Computer Application - By IT Computer Education ,2023 <br>•	Excellence in Innovation – MJPRU,2021 <br>
+BHUVNESH PANDEY<br>Just learning about how things work!<br>Pune, Maharashtra<br>+91-94114702428, +91-8630263353 <br>bhuvneshpandey23@gmail.com <br>www.linkedin.com/in/bhuvnesh-pandey-447807429<br>github.com/bhuvnesh548 |  <br>[your-portfolio.com]<br>QUALIFICATIONS<br>•Bachelor of Computer Application	<br>  1st division, 2026, MJP Rohilkhand University, Bareilly, Uttar Pradesh <br>•Intermediate <br>  2nd division, 2023, UP Board<br>•Highschool <br>  1st division, 2021, UP Board<br>Certifications<br>•	Advance diploma in Computer Application - By IT Computer Education ,2023 <br>•	Excellence in Innovation – MJPRU,2021 <br>
 
 
 ## 🌐 Socials:
